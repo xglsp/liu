@@ -63,5 +63,6 @@
 七世是太祖，七代称仍孙  
 八世称远祖，八代谓云孙  
 九世曰鼻祖，九代曰耳孙  
-![图示](https://tiebapic.baidu.com/forum/pic/item/d92df3deb48f8c541a4aba327c292df5e1fe7f8a.jpg?tbpicau=2026-03-23-05_a5cb200ff9b808b7a82bb072c27faf1a)
+<img src="https://tiebapic.baidu.com/forum/pic/item/d92df3deb48f8c541a4aba327c292df5e1fe7f8a.jpg?tbpicau=2026-03-23-05_a5cb200ff9b808b7a82bb072c27faf1a">
+
 
